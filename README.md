@@ -1,0 +1,1 @@
+# Copyright_ricky_linku
